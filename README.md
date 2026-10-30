@@ -8,7 +8,7 @@ favorite music:\
 \
 GUARDIAN - tony fox\
 Hopes and Dreams - also tony fox\
-CITRUS! - lianhua\
+CITRUS! - lianhua
 
 
 <img width="332" height="292" alt="spinning-duck" src="https://github.com/user-attachments/assets/10702bdc-662e-45a9-943c-fff7aea01cd9" />
