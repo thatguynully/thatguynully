@@ -8,6 +8,10 @@ favorite music:\
 \
 GUARDIAN - tony fox\
 Hopes and Dreams - also tony fox\
+Vs. Susie - tony fox (seems to be a reocurring thing huh?)\
+THE WORLD REVOLVING - tony fox (this guy just makes really good music)\
+Invincible - Deaf Kev\
+THE CIRCUS IN THE SKY - rundownsd\
 CITRUS! - lianhua
 
 
