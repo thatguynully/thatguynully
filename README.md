@@ -1,5 +1,5 @@
 hi\
-i play games (gd mostly)\
+i play games\
 i liek stuff thats nerdy and geek\
 [i have a youtube  channel btw](youtube.com/@thatguynully)\
 i use arch btw
