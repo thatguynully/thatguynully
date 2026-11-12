@@ -14,7 +14,7 @@ Invincible - Deaf Kev\
 THE CIRCUS IN THE SKY - rundownsd\
 CITRUS! - lianhua
 
-good games:
+good games:\
 minecraft\
 OneShot\
 Undertale\
