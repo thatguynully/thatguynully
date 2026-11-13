@@ -1,4 +1,5 @@
 hi\
+silly tech kid\
 i play games\
 i liek stuff thats nerdy and geek\
 [i have a youtube  channel btw](youtube.com/@thatguynully)\
