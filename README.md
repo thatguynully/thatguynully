@@ -21,7 +21,10 @@ minecraft\
 OneShot\
 Undertale\
 Deltarune\
-Phighting! (roblox)
-
+Phighting! (roblox)\
+\
+\
+\
+![Last.fm recently played](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=thatguynully&theme=catppuccin&count=1&width=460&radius=0)
 <img width="332" height="292" alt="spinning-duck" src="https://github.com/user-attachments/assets/10702bdc-662e-45a9-943c-fff7aea01cd9" />
 
